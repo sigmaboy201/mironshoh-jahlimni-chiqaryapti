@@ -1,0 +1,1 @@
+# mironshoh-jahlimni-chiqaryapti
